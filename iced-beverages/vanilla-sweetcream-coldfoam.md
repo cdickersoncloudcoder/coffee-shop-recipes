@@ -6,7 +6,7 @@
 
 - 8 oz cold brew
 - 1/4 cup of 2% milk
-- 1 Tbsp powdered sugar
+- 1 Tbsp cane sugar
 - 1/4 tsp apple extract
 - Ice
 
